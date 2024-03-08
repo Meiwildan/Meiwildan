@@ -1,5 +1,5 @@
 # 💫 About Me:
-- Information Systems Undergraduate<br>- Web and Design Enthusiast<br>- Open to learn new things
+- Information Systems Undergraduate<br>- Web and Design Enthusiast<br>- Open to learn new things<br>- Videography Enthusiast
 
 
 ## 🌐 Socials:
